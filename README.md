@@ -1,4 +1,4 @@
-# Kevin Rajkuamr
+# Sunil Rajkumar
 Researcher, Analyst, Programmer
 
 ## About Me
